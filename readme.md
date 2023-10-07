@@ -24,11 +24,20 @@ Il est présenté au [Festival international du film de Busan](https://fr.wikipe
 Corée du Sud : 8 octobre 2011 (Festival international du film de Busan) ; 3 novembre 2011 (sortie nationale)
 France : 24 mai 2012 (Quinzaine des réalisateurs au Festival de Cannes)
 
- > -titre original:
+ > ### Personnages principaux :
+| casting des personnages | 
+|-----------|
+| Jung Jong Suk [adulte] : Yang Ik Joon (양익준) | 
+| Hwang Kyung Min [adulte] : Oh Jung Se (오정세) | 
+| Kim Chul : Kim Hye Na (김혜나) | 
+| Jung Jong Suk [enfant] : Kim Kkot Bi (김꽃비) | 
+|  Hwang Kyung Min [enfant] : Park Hee Bon (박희본)| 
 
- > -titre original:
 
- > -titre original:
+
+
+
+
 
 
 
