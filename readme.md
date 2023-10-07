@@ -36,9 +36,9 @@ France : 24 mai 2012 (Quinzaine des réalisateurs au Festival de Cannes)
 ### Notes et retour
 ---
 _"J’ai, à vrai dire, rarement ressenti autant de malaise devant un film d’animation."_ : [Avis d'Anaelle](https://bonjour-coree.org/the-king-of-pigs/). 
--
+
 _"Je dois dire que je suis vraiment très déçu de ce film "_ : [sens critique](https://www.senscritique.com/film/the_king_of_pigs/418782/critiques).
--
+
 >![image](https://th.bing.com/th/id/OIP.8_mIxV0fpQFe0hlOtt06ygEsCg?pid=ImgDet&rs=1)  
 
 
