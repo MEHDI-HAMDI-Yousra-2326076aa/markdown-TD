@@ -24,7 +24,8 @@ Il est présenté au [Festival international du film de Busan](https://fr.wikipe
 Corée du Sud : 8 octobre 2011 (Festival international du film de Busan) ; 3 novembre 2011 (sortie nationale)
 France : 24 mai 2012 (Quinzaine des réalisateurs au Festival de Cannes)
 
- > ### Personnages principaux :
+ ### Personnages principaux :
+-----                                                          
 | casting des personnages | 
 |-----------|
 | Jung Jong Suk [adulte] : Yang Ik Joon (양익준) | 
@@ -32,8 +33,13 @@ France : 24 mai 2012 (Quinzaine des réalisateurs au Festival de Cannes)
 | Kim Chul : Kim Hye Na (김혜나) | 
 | Jung Jong Suk [enfant] : Kim Kkot Bi (김꽃비) | 
 |  Hwang Kyung Min [enfant] : Park Hee Bon (박희본)| 
-
-
+### Notes et retour
+---
+_"J’ai, à vrai dire, rarement ressenti autant de malaise devant un film d’animation."_ : [Avis d'Anaelle](https://bonjour-coree.org/the-king-of-pigs/). 
+-
+_"Je dois dire que je suis vraiment très déçu de ce film "_ : [sens critique](https://www.senscritique.com/film/the_king_of_pigs/418782/critiques).
+-
+>![image](https://th.bing.com/th/id/OIP.8_mIxV0fpQFe0hlOtt06ygEsCg?pid=ImgDet&rs=1)  
 
 
 
